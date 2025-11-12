@@ -1,0 +1,1 @@
+This is not a real artificial intelligence system but a simulation created for educational and demonstration purposes only. No chat history, personal data, or any other information is collected, stored, or retained.
